@@ -1,8 +1,6 @@
 <p align="center">
   <img src="1000001533-removebg-preview.png" width="100">
 </p>
-𝒟𝘰 𝘺𝘰𝘶 𝘣𝘦𝘭𝘪𝘦𝘷𝘦 𝘪𝘯 𝘭𝘰𝘷𝘦 𝘢𝘵 𝘧𝘪𝘳𝘴𝘵 𝘴𝘪𝘨𝘩𝘵? 𝘋𝘰 𝘶 𝘺𝘰𝘶 𝘣𝘦𝘭𝘪𝘦𝘷𝘦 𝘪𝘯 𝘧𝘢𝘵𝘦?"
-
-𝓘 𝘉𝘦𝘭𝘪𝘦𝘷𝘦 𝘵𝘩𝘢𝘵 𝘨𝘰𝘰𝘥 𝘵𝘩𝘪𝘯𝘨𝘴, 𝘰𝘯𝘭𝘺 𝘤𝘰𝘮𝘦 𝘵𝘰 𝘵𝘩𝘰𝘴𝘦 𝘸𝘩𝘰 𝘸𝘢𝘪𝘵"
+There's nothing here, hehe, you've been tricked! 
 
  ꒰ᐢ. .ᐢ꒱
