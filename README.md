@@ -4,6 +4,10 @@
 
 𝖍𝖊 / 𝖘𝖍𝖊
 
+ᴵⁿᵈᵒⁿᵉˢⁱᵃ/ᴹᵃˡᵃʸˢⁱᵃ
+
+𓂃 ՞𓈒𝓑𝓪𝓭 𝓔𝓷𝓰𝓵𝓲𝓼𝓱 ՞𓂃 
+
 <p align="center">
   <img src="1000001533-removebg-preview.png" width="100">
 </p>
