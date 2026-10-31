@@ -5,7 +5,7 @@
 <p align="center">
   <img src="1000001533-removebg-preview.png" width="100">
 </p>
-There's nothing here, hehe, you've been tricked!
+There's nothing here, hehe.
 
 ◇◇◇◇
 
@@ -15,4 +15,17 @@ There's nothing here, hehe, you've been tricked!
 
 𝑹𝒆𝒂𝒅 𝒎𝒚 𝒑𝒊𝒏𝒏𝒆𝒅 / second 𝒑𝒐𝒔𝒕 𝒃𝒚 𝑹𝑬𝑨𝑫𝑴𝑬 ♡
 
-![1000001664](https://github.com/user-attachments/assets/3c82a29a-3a0c-4afe-9e13-53a075e10728)
+<p align="center">
+  <img src="23fc4aeb105dcacc2e4e549f982e5e40.jpg" width="100">
+</p>
+
+<div align="center">
+
+𝕴𝖙'𝖘 𝖆 𝖕𝖑𝖊𝖆𝖘𝖚𝖗𝖊 𝖙𝖔 𝖒𝖊𝖊𝖙 𝖊𝖛𝖊𝖗𝖞𝖔𝖓𝖊, 𝕴'𝖒 𝖗𝖊𝖆𝖑𝖑𝖞 𝖍𝖆𝖕𝖕𝖞 𝖙𝖔 𝖘𝖊𝖊 𝖞𝖔𝖚 𝖆𝖑𝖑, 𝖊𝖛𝖊𝖓 𝖙𝖍𝖔𝖚𝖌𝖍 𝕴'𝖒 𝖆 𝖑𝖎𝖙𝖙𝖑𝖊 𝖘𝖍𝖞, 𝖇𝖚𝖙 𝕴'𝖑𝖑 𝖙𝖗𝖞 𝖒𝖞 𝖇𝖊𝖘𝖙!
+
+<br><br>
+
+𝕴𝖋 𝖞𝖔𝖚 𝖐𝖓𝖔𝖜 𝖆𝖓𝖞𝖔𝖓𝖊 𝖓𝖆𝖒𝖊𝖉 𝕵𝖎𝖓𝖓/𝕵𝖎𝖓, 𝖎𝖙'𝖘 𝖇𝖊𝖘𝖙 𝖓𝖔𝖙 𝖙𝖔 𝖆𝖘𝖐 𝖙𝖔𝖔 𝖒𝖆𝖓𝖞 𝖖𝖚𝖊𝖘𝖙𝖎𝖔𝖓𝖘 𝖔𝖗 𝖒𝖊𝖓𝖙𝖎𝖔𝖓 𝖍𝖎𝖒 𝖙𝖔𝖔 𝖒𝖚𝖈𝖍 𝖙𝖔 𝖒𝖊. 𝕴 𝖉𝖔𝖓'𝖙 𝖑𝖎𝖐𝖊 𝖍𝖎𝖒, 𝖆𝖓𝖉 𝖎𝖋 𝖞𝖔𝖚 𝖉𝖔𝖓'𝖙 𝖜𝖆𝖓𝖙 𝖒𝖊 𝖙𝖔 𝖌𝖊𝖙 𝖆𝖓𝖓𝖔𝖞𝖊𝖉 𝖜𝖎𝖙𝖍 𝖞𝖔𝖚, 𝖙𝖍𝖊𝖓 𝖉𝖔𝖓'𝖙 𝖗𝖆𝖒𝖇𝖑𝖊 𝖔𝖓 𝖆𝖇𝖔𝖚𝖙 𝖍𝖎𝖒, 𝖔𝖐.
+
+</div>
+
